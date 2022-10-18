@@ -1,2 +1,0 @@
-# asa52
-obushenie
